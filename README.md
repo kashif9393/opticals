@@ -1,2 +1,3 @@
 # opticals
-take one farem 
+take one banna and bet two banna
+
