@@ -1,1 +1,2 @@
 # opticals
+take one farem 
